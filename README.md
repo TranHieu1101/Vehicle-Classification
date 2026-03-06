@@ -1,2 +1,4 @@
 Download dataset here:
 https://drive.google.com/file/d/1KlxxkEMRLhb3WfH3IuK0QfNpCYBI54AX/view?usp=sharing
+Download pdf here:
+[Uploading Báo cáo giữa kì (1).pdf…]()
